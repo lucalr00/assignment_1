@@ -1,0 +1,4 @@
+2042784
+2045040
+
+Logitech G502 LIGHTSPEED Mouse Gaming Wireless, 25600DPI
